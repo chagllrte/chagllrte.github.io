@@ -1,5 +1,8 @@
 # Welcome to Charwen's github🍓
-## Here are my top 3 in movies:
+Hi! My name is Charwen Gallarte and this is my safe space.
+About me ˚ ༘♡ ⋆｡˚:
+I like listening to music especially when it's raining! I love baking and I like watching films or any series. 
+## Here are my favorites in movies:
 **1. When Marnie was there**
      ![marnie](https://m.media-amazon.com/images/M/MV5BZTlmYTJmMWEtNDRhNy00ODc1LTg2OTMtMjk2ODJhNTA4YTE1XkEyXkFqcGdeQXVyMTMxODk2OTU@._V1_FMjpg_UX1000_.jpg)
 
